@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GamerStefEpic
+- 👋 Hi, I’m @Oneo
 - 👀 I’m interested in furries and gaming:3
 - 🌱 I’m currently learning coding and school:3
 - 💞️ I’m looking to collaborate on with furries:3
